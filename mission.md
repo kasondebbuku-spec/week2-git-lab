@@ -1,1 +1,1 @@
-"Mission Leader: Nixon Shibuchi" 
+Mission Leader: Nixon Shibuchi 
